@@ -8,8 +8,6 @@ In veel organisaties in **Nederland** is de toolbox goed gevuld: BI-platformen, 
 
 Daar precies probeert **CryptoGeld** een rol te spelen. Niet als nog een pronkstuk vol grafieken, maar als werkomgeving waarin **datastromen, regels en uitgevoerde stappen in één samenhangend kader** worden vastgelegd. Veel Nederlandse teams beginnen voorzichtig en **[bezoeken de officiële website van CryptoGeld](https://cryptogeldnetherlands.com/?utm_term=annghnlu162)** om te zien hoe deze filosofie aansluit op hun huidige manier van werken. Wie liever meteen het product ervaart, kan **[toegang krijgen tot het CryptoGeld-platform](https://cryptogeldnetherlands.com/?utm_term=annghnlu162)** en een compleet voorbeeldscenario doorlopen – van eerste signaal tot vastgelegde beslissing.
 
-![Team dat samenwerkt aan laptops en documenten in een kantoor](https://static.vecteezy.com/ti/gratis-vector/p1/47783992-een-verschillend-groep-van-bedrijf-professionals-samenwerken-aan-een-project-in-een-modern-kantoor-instelling-ze-zijn-gebruik-makend-van-laptops-en-documenten-naar-werk-samen-effectief-gratis-vector.jpg)
-
 ## Wat CryptoGeld in de Nederlandse praktijk werkelijk doet
 Voor organisaties in **Nederland** is **CryptoGeld** in de kern een antwoord op drie simpele vragen:
 Welke informatie zien we? Welke regels gelden er als er iets verandert? En hoe tonen we achteraf aan wat er precies is gebeurd?
